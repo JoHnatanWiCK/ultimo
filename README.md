@@ -1,3 +1,0 @@
-# ultimojajajajaj
-jajajaj
-papa
